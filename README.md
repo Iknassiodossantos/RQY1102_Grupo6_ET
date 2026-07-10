@@ -1,1 +1,0 @@
-# RQY1102_Grupo6_ET
